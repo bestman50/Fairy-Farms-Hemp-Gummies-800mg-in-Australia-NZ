@@ -1,7 +1,7 @@
 
 ![Fairy Farms Hemp Gummies  Review](https://github.com/user-attachments/assets/16665067-6f6e-44ae-83bd-def4caf9d087)
 
-# Fairy Farms Hemp Gummies 800mg in Australia & NZ: Benefits, Side Effects, Reviews, Consumer Reports, Complaints, and Where to Buy**
+# Fairy Farms Hemp Gummies 800mg in Australia & NZ: Benefits, Side Effects, Reviews, Consumer Reports, Complaints, and Where to Buy
 
 ## Fairy Farms Hemp Gummies Reviews 2024 - Is Actiflow Safe and Legit?
 
